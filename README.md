@@ -1,0 +1,1 @@
+# my-canon30D-settings
